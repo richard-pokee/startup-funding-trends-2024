@@ -1,2 +1,1 @@
-# startup-funding-trends-2024
-Repository for tracking startup funding trends in 2024
+No relevant information was found about startup funding trends in 2024.
